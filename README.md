@@ -1,1 +1,1 @@
-readme updated Edcomfx
+Smith Edikan updated readme

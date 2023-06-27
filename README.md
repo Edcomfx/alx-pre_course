@@ -1,1 +1,1 @@
-Smith Edikan updated readme
+Smith Edikan updated the readme
